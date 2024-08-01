@@ -17,7 +17,7 @@
 
 [`ℹ️Contact Owner`](https://wa.me/2348140825959)
 
-[!FORK BADBOI HACKER]•https://github.com/BADBOI-v1/queen-Bhad-dc-paring-generator/fork
+[!FORK BADBOI HACKER]•https://github.com/BADBOI-v1/queen-Bhad-dc-paring-generator-/fork
 
 Now Deploy
     <br>
